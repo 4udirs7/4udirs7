@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @4udirs7
+- 👀 I’m interested in playing basketbal
+- 🌱 I’m currently learning JavaScript
+- 📫 How to reach me 4udi.rs7@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'd probably beat you in basketball 
